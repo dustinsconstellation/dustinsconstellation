@@ -8,11 +8,11 @@
 <img src=https://files.catbox.moe/izojdy.gif> <img src=https://files.catbox.moe/z8zxlm.gif> <Img src=https://files.catbox.moe/p26mmg.gif> <img src=https://files.catbox.moe/n6lrkd.gif>
 
  <p align="center">
-hi i go by james and i like alot of stuff like  f1 , hannibal , spn , peace maker , etc 
+i go by james or cal 
    <p align="center">
-wip bio rn cuz im lazy help 
+
  <p align="center">
- i love SV5 and penguins >_O 
+ i love aaaalott of cool things like sv5 and penguins ok  
  <p align="center">
 <img src=https://files.catbox.moe/guskxq.jpg>
 <p align="center">
