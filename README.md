@@ -14,6 +14,5 @@ i go by james or cal
  <p align="center">
  i love aaaalott of cool things like sv5 and penguins ok  
  <p align="center">
-<img src=https://files.catbox.moe/guskxq.jpg>
 <p align="center">
 <img src=https://files.catbox.moe/uw0k2e.gif> <img src=https://files.catbox.moe/t0s8pk.gif> 
