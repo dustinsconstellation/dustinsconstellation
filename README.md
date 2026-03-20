@@ -10,6 +10,7 @@
 <p align="center">
 i go by james or cal 
 <p align="center">
+  why isnt this stupid thing in middle im getting a headache.
   
 [rentry!](https://rentry.co/svttel) ଳ [ata!](https://jamesvr.atabook.org/)
 
