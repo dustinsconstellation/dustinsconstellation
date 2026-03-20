@@ -10,6 +10,7 @@
  <p align="center">
 i go by james or cal 
    <p align="center">
+   <br/><sub>[__rentry__](https://rentry.co/svttel) ଳ [__ata__](https://jamesvr.atabook.org/)<br/>
 
  <p align="center">
  i love aaaalott of cool things like sv5 and penguins ok  
