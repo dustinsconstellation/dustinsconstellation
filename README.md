@@ -11,7 +11,7 @@
 i go by james or cal 
    <br/><sub>[rentry](https://rentry.co/svttel) ଳ [ata](https://jamesvr.atabook.org/)<br/>
 
-   <br/><sub>[__straw__](https://mightberotten.straw.page/) ꩜ [__ata__](https://mightberotten.atabook.org/)<br/>
+   
 
  <p align="center">
  i love aaaalott of cool things like sv5 and penguins ok  
