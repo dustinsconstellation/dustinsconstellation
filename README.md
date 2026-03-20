@@ -2,15 +2,13 @@
   
   [![Typing SVG](https://readme-typing-svg.demolab.com?font=Besley&size=26&duration=4000&pause=200&color=1C7DCF&center=true&vCenter=true&width=430&lines=WOOOHOOOOOO;+YABADABADEEEEEE;RING+DING+DING+DING!+)](https://git.io/typing-svg)
   
-   <p align="center">
+<p align="center">
   # SVTTEL990
- <p align="center">
 <img src=https://files.catbox.moe/izojdy.gif> <img src=https://files.catbox.moe/z8zxlm.gif> <Img src=https://files.catbox.moe/p26mmg.gif> <img src=https://files.catbox.moe/n6lrkd.gif>
-
 
 i go by james or cal 
   
- [rentry!](https://rentry.co/svttel) ଳ [ata!](https://jamesvr.atabook.org/)
+[rentry!](https://rentry.co/svttel) ଳ [ata!](https://jamesvr.atabook.org/)
 
 
    
