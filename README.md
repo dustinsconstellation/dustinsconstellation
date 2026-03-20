@@ -13,6 +13,8 @@ i go by james or cal
       
 [rentry!](https://rentry.co/svttel) ଳ [ata!](https://jamesvr.atabook.org/)
 
+ <p align="center">
+
    
 
  <p align="center">
