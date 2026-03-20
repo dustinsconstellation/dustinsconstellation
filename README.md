@@ -9,7 +9,8 @@
 
  <p align="center">
 i go by james or cal 
-   <br/><sub>[rentry](https://rentry.co/svttel) ଳ [ata](https://jamesvr.atabook.org/)<br/>
+   check out my 
+   <br/><sub>[rentry!](https://rentry.co/svttel) ଳ [ata!](https://jamesvr.atabook.org/) <br/>
 
    
 
