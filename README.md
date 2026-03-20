@@ -10,12 +10,12 @@
 <p align="center">
 i go by james or cal 
 <p align="center">
-  why isnt this stupid thing in middle im getting a headache.
-  
-[rentry!](https://rentry.co/svttel) ଳ [ata!](https://jamesvr.atabook.org/)
+  why isnt this stupid thing (rentry/ ata) in the middle im going insane.
+  <p align="center">
+    
+  [rentry!](https://rentry.co/svttel) ଳ [ata!](https://jamesvr.atabook.org/)
 
  <p align="center">
  i love aaaalott of cool things like sv5 and penguins ok  
- <p align="center">
 <p align="center">
 <img src=https://files.catbox.moe/uw0k2e.gif> <img src=https://files.catbox.moe/t0s8pk.gif> 
