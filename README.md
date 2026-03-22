@@ -1,21 +1,14 @@
+ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Besley&size=26&duration=4000&pause=200&color=1C7DCF&center=true&vCenter=true&width=430&lines=WOOOHOOOOOO;+YABADABADEEEEEE;RING+DING+DING+DING!+)](https://git.io/typing-svg)
 
-  
-  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Besley&size=26&duration=4000&pause=200&color=1C7DCF&center=true&vCenter=true&width=430&lines=WOOOHOOOOOO;+YABADABADEEEEEE;RING+DING+DING+DING!+)](https://git.io/typing-svg)
-  
-<p align="center">
-  # SVTTEL990
-  <p align="center">
-<img src=https://files.catbox.moe/izojdy.gif> <img src=https://files.catbox.moe/z8zxlm.gif> <Img src=https://files.catbox.moe/p26mmg.gif> <img src=https://files.catbox.moe/n6lrkd.gif>
+   [rentry!](https://rentry.co/svttel) ଳ [ata!](https://jamesvr.atabook.org/)
 
-<p align="center">
+  # SVTTEL990 
+
+
 i go by james or cal 
-<p align="center">
-  why isnt this stupid thing (rentry/ ata) in the middle im going insane.
-  <p align="center">
-    
-  [rentry!](https://rentry.co/svttel) ଳ [ata!](https://jamesvr.atabook.org/)
 
- <p align="center">
- i love aaaalott of cool things like sv5 and penguins ok  
-<p align="center">
+ i love aaaalott of cool things like the color blue, f1 and penguins ok  
+ i only play pt when im bored and sometimews i afk alot in game 
+ 
 <img src=https://files.catbox.moe/uw0k2e.gif> <img src=https://files.catbox.moe/t0s8pk.gif> 
+<img src=https://files.catbox.moe/izojdy.gif> <img src=https://files.catbox.moe/z8zxlm.gif> <Img src=https://files.catbox.moe/p26mmg.gif> <img src=https://files.catbox.moe/n6lrkd.gif>
