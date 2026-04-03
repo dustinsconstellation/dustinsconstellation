@@ -7,8 +7,7 @@
 
 i go by james or cal 
 
- i love aaaalott of cool things like the color blue, f1 and penguins ok  
- not active alot on pt and sometimews i afk alot in game 
+ i love aaaalott of cool things like the color blue, f1 and penguins ok ? ^_^
  
 <img src=https://files.catbox.moe/uw0k2e.gif> <img src=https://files.catbox.moe/t0s8pk.gif> 
 <img src=https://files.catbox.moe/izojdy.gif> <img src=https://files.catbox.moe/z8zxlm.gif> <Img src=https://files.catbox.moe/p26mmg.gif> <img src=https://files.catbox.moe/n6lrkd.gif>
