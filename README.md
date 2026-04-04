@@ -8,7 +8,7 @@
 i go by james or cal 
 
  i love aaaalott of cool things like the color blue, f1 and penguins ok EDIT: AND NYAN CATS TOO )) 
- if u see my gh btu ur in mu friends list jst know im offline instead lmao
+ if u see my gh btu ur in mu friends list jst know im offline instead lmao ( on ponytown) bro i swear im cool why do i have no friends to tlak 2 :( turns out i'm an isfp bruhh! 
  
 <img src=https://files.catbox.moe/uw0k2e.gif> <img src=https://files.catbox.moe/t0s8pk.gif> 
 <img src=https://files.catbox.moe/izojdy.gif> <img src=https://files.catbox.moe/z8zxlm.gif> <Img src=https://files.catbox.moe/p26mmg.gif> <img src=https://files.catbox.moe/n6lrkd.gif>
