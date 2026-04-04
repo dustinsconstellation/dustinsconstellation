@@ -2,7 +2,7 @@
 
    [rentry!](https://rentry.co/svttel) ଳ [ata!](https://jamesvr.atabook.org/)
 
-  # SVTTEL990 
+  # ICALDOGT990
 
 
 i go by james or cal 
