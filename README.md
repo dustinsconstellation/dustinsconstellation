@@ -5,7 +5,7 @@
   # ICALDOGT990
 
 
-i go by james or cal 
+i go by james or cal (๑>ᴗ<๑)
 
  i love aaaalott of cool things like the color blue, f1 and penguins ok EDIT: AND NYAN CATS TOO )) 
  if u see my gh btu ur in mu friends list jst know im offline instead lmao ( on ponytown) bro i swear im cool why do i have no friends to tlak 2 :( turns out i'm an isfp bruhh! 
