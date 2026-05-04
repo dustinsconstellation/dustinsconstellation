@@ -13,4 +13,4 @@ sign my [atabook](https://jamesvr.atabook.org/) ! > _ O
 <img src=https://files.catbox.moe/ecuvnh.webp> 
 
 
-aww so cute this my friends ok . ok love al u guys ^^^^^^ 
+aw appreciation pic ok . ok love al u guys ^^^^^^ 
