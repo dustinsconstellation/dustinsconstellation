@@ -9,13 +9,11 @@
 sign my [atabook](https://jamesvr.atabook.org/) ! > _ O 
 
 <div align="center">
-
-<img src=https://files.catbox.moe/ecuvnh.webp> 
-
-us me qfirends ^ 3/05/26
-
+ 
 <img src=https://files.catbox.moe/j1ga6f.webp>
 
 LMFAOOO SAM's EYES. cool chud friends ^ 16/05/26
+
+guys trust me ill remake this soon 🥺
 
 
