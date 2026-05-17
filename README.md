@@ -12,5 +12,10 @@ sign my [atabook](https://jamesvr.atabook.org/) ! > _ O
 
 <img src=https://files.catbox.moe/ecuvnh.webp> 
 
+us me qfirends ^ 3/05/26
 
-us me qfirends
+<img src=https://files.catbox.moe/j1ga6f.webp>
+
+LMFAOOO SAM's EYES. cool chud friends ^ 16/05/26
+
+
