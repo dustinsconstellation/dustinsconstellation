@@ -12,7 +12,7 @@ sign my [atabook](https://jamesvr.atabook.org/) ! > _ O
  
 <img src=https://files.catbox.moe/j1ga6f.webp>
 
-LMFAOOO SAM's EYES. cool chud friends ^ 16/05/26
+LMFAOOO SAM's EYES. my chud friends /silly ^ 16/05/26
 
 guys trust me ill remake this soon 🥺
 
