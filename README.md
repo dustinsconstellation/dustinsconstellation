@@ -1,16 +1,16 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**dustinsconstellation/dustinsconstellation** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+(˶ᵔ ᵕ ᵔ˶) remaking gh soon 
+ 
 
-Here are some ideas to get you started:
+![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fdustinsconstellation&label=%E0%AB%AE(o%E1%86%BAo)%E1%83%90&countColor=%233f7682&style=plastic&labelStyle=none) 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+sign my [atabook](https://jamesvr.atabook.org/) to bully me into rmk my rentry 
+
+<div align="center">
+ 
+
+<img src=https://files.catbox.moe/tcma76.png> 
+
+my frriieendsss ! ! aww
