@@ -8,6 +8,8 @@ i dont have a good image yet  ^ so im using this LOL ,, andrew2002 faker
 
 [atabook](https://jamesvr.atabook.org/) o [rentry](https://rentry.co/caldogt)
 
+CHECK MY RENTRY ^O^ 
+
 fixing othr gh soon yawnn 
 
 
