@@ -18,7 +18,9 @@ $${\color{#e1d0a0}c+h} \space {\color{#e1d0a0}enc} \space {\color{#b17e86}sign} 
 
  $${\color{#3f256a}big} \space {\color{#60336f}band} \space {\color{#933f79}fan} \space {\color{#b17e86}patrick} \space {\color{#e1d0a0}stump}$$
 
+i $${\color{#b7548f}love}$$ all my friends :-)   
 
+thank you [p](<https://github.com/pt-of-awesomeness>) [t](<https://github.com/pt-hall-of-media>)  ∑(°口°๑) 
 
 
 
