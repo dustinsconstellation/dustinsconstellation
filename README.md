@@ -20,7 +20,7 @@ $${\color{#e1d0a0}c+h} \space {\color{#e1d0a0}encouraged} \space {\color{#b17e86
 
 i $${\color{#b7548f}love}$$ all my friends :-)   
 
-thank you [p](<https://github.com/pt-of-awesomeness>) [t](<https://github.com/pt-hall-of-media>) [c](<https://GitHub.com/pt-characters>) ∑(°口°๑) 
+thank you [p](<https://github.com/pt-of-awesomeness>) [t](<https://github.com/pt-hall-of-media>) [c](<https://GitHub.com/ponychievement>) ∑(°口°๑) 
 
 
 
