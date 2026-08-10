@@ -12,7 +12,7 @@
 
 $${\color{#3f256a}Graphics} \space {\color{#60336f}made} \space {\color{#933f79}by} \space {\color{#b17e86} @dustins} \space {\color{#e1d0a0}constellation}$$
 
-[atabook](https://jamesvr.atabook.org/) $${\color{#b17e86} o}$$ [rentry](https://rentry.co/caldogt)
+[ATABOOK](https://jamesvr.atabook.org/) $${\color{#b17e86} o}$$ [FLUFFLE](https://fluffle.cc/caldogt)
 
 $${\color{#e1d0a0}c+h} \space {\color{#e1d0a0}encouraged} \space {\color{#b17e86}sign} \space {\color{#933f79}ata}{\color{#60336f}book}$$
 
@@ -20,7 +20,7 @@ $${\color{#e1d0a0}c+h} \space {\color{#e1d0a0}encouraged} \space {\color{#b17e86
 
 i $${\color{#b7548f}love}$$ all my friends :-)   
 
-thank you [p](<https://github.com/pt-of-awesomeness>) [t](<https://github.com/pt-hall-of-media>) [c](<https://GitHub.com/ponychievement>) ∑(°口°๑) 
+if I'm in any " ponytown " achievements with my username lmk in my ata I can't recall if I'm in any of them or not, thanks! 
 
 
 
