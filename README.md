@@ -12,7 +12,7 @@
 
 $${\color{#3f256a}Graphics} \space {\color{#60336f}made} \space {\color{#933f79}by} \space {\color{#b17e86} @dustins} \space {\color{#e1d0a0}constellation}$$
 
-**[ATABOOK](https://jamesvr.atabook.org/) $${\color{#b17e86} o}$$ [RENTRY](https://rentry.co/caldgot)
+**[ATABOOK](https://jamesvr.atabook.org/) $${\color{#b17e86} o}$$ [RENTRY](https://rentry.co/caldgot)**
 
 $${\color{#e1d0a0}c+h} \space {\color{#e1d0a0}encouraged} \space {\color{#b17e86}sign} \space {\color{#933f79}ata}{\color{#60336f}book}$$
 
