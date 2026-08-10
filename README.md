@@ -18,8 +18,6 @@ $${\color{#e1d0a0}c+h} \space {\color{#e1d0a0}encouraged} \space {\color{#b17e86
 
  $${\color{#3f256a} mcr} \space {\color{#60336f}fob} \space {\color{#933f79}fan ++} \space {\color{#b17e86}patrick} \space {\color{#e1d0a0}stump}$$
 
-i $${\color{#b7548f}love}$$ all my friends :-)   
-
 if I'm in any " ponytown " achievements with my username lmk in my ata I can't recall if I'm in any of them or not, thanks! 
 
 
